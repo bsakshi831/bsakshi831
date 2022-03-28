@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **sakshibhongade3@gmail.com**
 
-- ⚡ Fun fact **Lemons float, but limes sink.**
+- ⚡ Fun fact **Thai noodles are available in an array of shapes and sizes : s, l, xl, anglEl hair! **
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
